@@ -1,2 +1,0 @@
-# ocie
-Mchroksi@gmail.com
